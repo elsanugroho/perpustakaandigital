@@ -12,4 +12,5 @@ Berikut ini adalah Koleksi yang dimiliki:
 8. [The Art of Being Alone](ebook/The Art of Being Alone.pdf) - Renuka Gavrani (2023)
 9. [People Pleaser](ebook/People Pleaser.pdf) - Kelly @Personalitydoc (2025)
 10. [Apa yang Kita Pikirkan Ketika Kita Sendirian](ebook/Apa yang Kita Pikirkan Ketika Kita Sendirian.pdf) - Desi Anwar (2020)
+11. [Elsa Nugroho_156_D_Rangkuman UGC](ebook/Elsa Nugroho_156_D_Rangkuman UGC.pdf) - Elsa Nugroho (2026)
 *Powered by GitHub Pages*
