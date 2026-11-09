@@ -7,7 +7,7 @@ Berikut ini adalah Koleksi yang dimiliki:
 3. [Seporsi Mie Ayam Sebelum Mati](ebook/Seporsi Mie Ayam Sebelum Mati.pdf) - Brian Khrisna (2025)
 4. [Bandit-Bandit Berkelas](ebook/Bandit-Bandit Berkelas.pdf) - Tere Liye (2024)
 5. [Nanti Juga Sembuh Sendiri](ebook/Nanti Juga Sembuh Sendiri.pdf) - Hello Bagas (2022)
-6. [Seorang Pria yang Melalui Duka dengan Mencuci Piring](ebook/Seorang Pria yang Melalui Duka dengan Mencuci Piring.pdf.) - Andreas Kurniawan (2023)
+6. [Seorang Pria yang Melalui Duka dengan Mencuci Piring](ebook/Seorang Pria yang Melalui Duka dengan Mencuci Piring.pdf) - Andreas Kurniawan (2023)
 7. [Semua Ikan di Langit](ebook/Semua Ikan di Langit.pdf) - Ziggy Zezsyazeoviennazabrizkie (2017)
 8. [The Art of Being Alone](ebook/The Art of Being Alone.pdf) - Renuka Gavrani (2023)
 9. [People Pleaser](ebook/People Pleaser.pdf) - Kelly @Personalitydoc (2025)
